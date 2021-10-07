@@ -1,6 +1,6 @@
 What is Soap2Day
 
-Soap2Day is a service created for watching movies, web series and other entertainment programs. The service is illegal, however, it has many advantages over other programs. For example, it has a large number of genres, among which the user can choose the most attractive. There are also options that allow you to customize the exact search result. The service is completely free, which makes it one of the most popular on the Internet spaces.
+Soap2Day https://soap2day-movies.com/ is a service created for watching movies, web series and other entertainment programs. The service is illegal, however, it has many advantages over other programs. For example, it has a large number of genres, among which the user can choose the most attractive. There are also options that allow you to customize the exact search result. The service is completely free, which makes it one of the most popular on the Internet spaces.
 
 Why Soap2Day is so popular
 
